@@ -4,7 +4,7 @@
 - 💞️
 - 📫 me chame de Guilherme
 - 😄 Pronomes Ele/Dele
-- ⚡ fato engracado: gosto de red dead redemption 2
+- ⚡ fato engracado: nao tenho fatos engracados
 
 <!---
 GuilhermeAraujo23/GuilhermeAraujo23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
